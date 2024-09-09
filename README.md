@@ -1,6 +1,6 @@
 # EFCloud机场官网地址
 
-最新地址：[efcloud.bio](https://user.efcloud1.com/#/register?code=WF4l8A7k)
+最新地址：[efcloud.bio](https://www.efcloud3.com/#/register?code=WF4l8A7k)
 
 ## EFCloud介绍
 
