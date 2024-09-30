@@ -1,6 +1,6 @@
 # EFCloud机场官网地址
 
-最新地址：[efcloud.bio](https://www.efcloud3.com/#/register?code=WF4l8A7k)
+最新地址：[efcloud.bio](https://inv.easyfastcloud.com/#/register?code=WF4l8A7k)
 
 ## EFCloud介绍
 
@@ -10,7 +10,9 @@ EFCloud机场最低套餐月付10元,支持支付宝/微信支付。
 
 ## EFCloud优惠码
 
-暂无可用优惠码
+国庆节日优惠活动 2024/09/25-2024/10/10
+
+全场 8 折优惠券: 国庆七天乐
 
 ## EFCloud价格
 
