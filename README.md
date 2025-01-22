@@ -1,6 +1,10 @@
 # EFCloud机场官网地址
 
-最新地址：[efcloud.bio](https://inv.easyfastcloud.com/#/register?code=WF4l8A7k)
+场主失联，将现有用户迁移至 XSUS机场，迁移账号的具体事宜，您可以联系 @xsus_support_bot 处理。
+
+1. 对于套餐仍在有效期内的用户，您可以免费迁移至XSUS。
+
+2. 如果您的套餐即将到期或尚未持有有效套餐，也可以享受八折续购的优惠
 
 ## EFCloud介绍
 
