@@ -32,3 +32,8 @@ EFCloud机场最低套餐月付10元,支持支付宝/微信支付。
 
 Mini 总计100GB 流量 ¥20.00用完为止
 
+## EFCloud已经停摆
+
+EFCloud已经停摆XSUS已经接管，提供部分时间兑换服务。
+https://xs-us.xyz/register?code=BmJLl0Mt
+注册新号，然后找右下角的在线客服，说明来意。把原EFCloud的剩余时间截图发给她就行，具体地址管客服要就行。
